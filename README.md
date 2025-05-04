@@ -1,10 +1,7 @@
-- 👋 Hi, I’m @Sebyverse
-- 👀 I’m dedicated to creating predictibility in business with predictive technology...
-- 🌱 I’m currently learning how to code my ideas to reality...
-- 💞️ I’m looking to collaborate on creating blockchain, ai, SaaS projects...
-- 📫 How to reach me: Instagram @Sebyland...
+I make things that make money.
 
-<!---
-Sebyverse/Sebyverse is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+Then I do it again.
+
+Wanna chat?
+
+hmu @sebyverse anywhere
