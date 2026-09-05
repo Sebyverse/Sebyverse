@@ -1,5 +1,3 @@
-I make things that make money.
+Make things that make people excited to be alive 
 
-Then I do it again.
-
-hmu @sebyverse anywhere
+@sebyrubino on X.
